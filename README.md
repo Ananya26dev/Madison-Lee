@@ -1,0 +1,3 @@
+Personal Branding Portfolio : "Madison Lee"
+
+This project highlights a personal branding portfolio for "Madison Lee," a She-EO entrepreneur. The layout features vibrant, colorful sections that promote key offerings such as downloadable books, career tips, mentorship guides, money-saving ideas, and self-care advice. The design is visually appealing and ideal for showcasing a personal brand, services, or expertise in a creative and engaging way.
